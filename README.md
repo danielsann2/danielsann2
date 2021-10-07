@@ -1,4 +1,4 @@
-[![Discord](https://discord.c99.nl/widget/theme-2/211774244294623243.png)](https://discord.gg/ZsSx8XB)
+[![Discord](https://discord.c99.nl/widget/theme-2/211774244294623243.png)](https://discord.gg/DnGVgXR4dC)
 
 ### Hi there 👋 I'm Zero.
 
